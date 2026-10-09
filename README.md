@@ -241,4 +241,4 @@ Trails of Cold Steel: NW is available as a complete free version with all featur
 Don’t miss out on this epic RPG experience! Download **Trails of Cold Steel: NW** today and embark on your adventure!
 
 ---
-**Last updated:** 2026-10-09 01:54:41 UTC
+**Last updated:** 2026-10-09 08:46:09 UTC
